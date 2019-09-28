@@ -1,1 +1,1 @@
-Czas na działanie.
+Czas na działanie!
